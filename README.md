@@ -1,0 +1,2 @@
+# potencial-garbanzo
+Potecial
